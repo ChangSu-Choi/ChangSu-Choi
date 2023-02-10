@@ -1,1 +1,1 @@
-# Hello I'm ChangSu Choi - Interested in deep learning
+# Hello I'm ChangSu Choi - Interested in Deep Learning
